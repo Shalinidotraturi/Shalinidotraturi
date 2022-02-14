@@ -5,7 +5,7 @@ Hello, everyone..
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Any tech related stuff.
-- 📫 How to reach me: ...https://www.instagram.com/
+- 📫 How to reach me: ...https://www.instagram.com
 - https://www.facebook.com/profile.php?id=100077524570122
 -                         
 - 😄 Pronouns: ...SHE/
