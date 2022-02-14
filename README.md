@@ -6,5 +6,7 @@ Hello, everyone..
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Any tech related stuff.
 - 📫 How to reach me: ...https://www.instagram.com/
+- https://www.facebook.com/profile.php?id=100077524570122
+-                         
 - 😄 Pronouns: ...SHE/
 - ⚡ Fun fact: ...I spend Almost 12 hour's listening song everyday. 
