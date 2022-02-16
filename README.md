@@ -7,7 +7,8 @@ Hello, everyone..
 - 💬 Ask me about ...Any tech related stuff.
 - 📫 How to reach me: ...https://www.instagram.com
 - https://www.facebook.com/profile.php?id=100077524570122
--https://exercism.org/profiles/Shalinidotraturi
+   
+   -https://exercism.org/profiles/Shalinidotraturi
 
 - 😄 Pronouns: ...SHE/
 - ⚡ Fun fact: ...I spend Almost 12 hour's listening song everyday. 
